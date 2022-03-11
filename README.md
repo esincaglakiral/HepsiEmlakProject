@@ -1,1 +1,1 @@
-https://esincaglakiral.github.io/HepsiEmlakProject/
+https://esincaglakiral.github.io/
